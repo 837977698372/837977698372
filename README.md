@@ -1,0 +1,4 @@
+- 👋 Hi, I’m somesh
+- 👀 I’m interested in editing
+- 📫 How to reach me somesh00027@gmail.com
+- ⚡ Fun fact is i am friendly to everyone
